@@ -1,0 +1,1 @@
+# furknsyl.github.io
